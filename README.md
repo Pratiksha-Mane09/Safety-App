@@ -10,7 +10,7 @@
 
 <br>
 
-<img src="https://i.ibb.co.com/yNcpRqd/Thumbnail-1.png">
+
 
 ## ⚠️ Problem Statement
 Violence against women is a persistent issue, especially in South Asia, where legal protections are often insufficient. This has led to a significant increase in crimes against women, with very few resulting in convictions.
